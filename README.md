@@ -1,0 +1,2 @@
+# hello-odko
+Mandakh burtgel
